@@ -15,7 +15,7 @@ after u click upload scroll down until u see "Color presets" click "grayscale" a
 
 ## how do i make my GH layout,rentry,sp and etc so pretty?
 
-there is an app called tumblr! u can use pinterest tho so u js search "rentry resource,rentry divider, rentry display,rentry pixel,rentry graphics,rentry stamps,rentry decor and etc" ៸៸¯ᗜ¯៸៸ for pinterest there is some dangerous links so be careful!
+there is an app called tumblr! u can use pinterest tho, but i recommend Tumblr, so u js search "rentry resource,rentry divider, rentry display,rentry pixel,rentry graphics,rentry stamps,rentry decor and etc" ៸៸¯ᗜ¯៸៸ for pinterest there is some dangerous links so be careful! to edit it use IBISpaint
 
 ## how do i make my layout color into pretty?
 
