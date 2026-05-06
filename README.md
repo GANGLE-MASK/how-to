@@ -1,6 +1,6 @@
 <div align="center">
 
-hello!! xen/koi here •̀⩊•́ to help u with gh layout or smth, u can req in my [atabook](https://muffinhead.atabook.org/) ៸៸¯ᗜ¯៸៸ im sorry if i cant do ur reqᴗ͈̆‸ᴗ͈̆
+hello!! xen/koi here •̀⩊•́ to help u with gh layout or smth, u can req in my [NGL](https://ngl.link/xennoway) ៸៸¯ᗜ¯៸៸ im sorry if i cant do ur reqᴗ͈̆‸ᴗ͈̆
 
 i apologize if im bad explaining or u cant understand it ᴗ͈̆‸ᴗ͈̆  i hope u can understand what i said ៸៸¯ᗜ¯៸៸
 
