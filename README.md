@@ -1,6 +1,6 @@
 <div align="center">
 
-hello!! xen/koi here •̀⩊•́ to help u with gh layout or smth, u can req in my [NGL](https://ngl.link/xennoway) ៸៸¯ᗜ¯៸៸ im sorry if i cant do ur reqᴗ͈̆‸ᴗ͈̆
+hello!! xen/koi here •̀⩊•́ to help u with gh layout or smth, u can ask in my [NGL](https://ngl.link/xennoway) ៸៸¯ᗜ¯៸៸ im sorry if i cant do ur reqᴗ͈̆‸ᴗ͈̆
 
 i apologize if im bad at explaining or u cant understand it english is not my first word ᴗ͈̆‸ᴗ͈̆  i hope u can understand what i said ៸៸¯ᗜ¯៸៸ also idk why i make this lol
 
