@@ -26,3 +26,8 @@ brightness and contrast is up to u!
 i use brightness: -9 contrast: -34
 
 the color i use ↓
+
+<img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/4ac97d4f-4006-4a6b-9931-12b065b6c0f7" />
+<img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/40552ef1-7947-4dae-910c-05d56d0858d4" />
+<img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/35ff502a-5aeb-47d8-9fc5-2ed37667349c" />
+<img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/fbc76364-ab31-4bbe-93e3-96d46e9b82af" />
