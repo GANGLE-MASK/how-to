@@ -31,3 +31,13 @@ the color i use ↓
 <img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/40552ef1-7947-4dae-910c-05d56d0858d4" />
 <img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/35ff502a-5aeb-47d8-9fc5-2ed37667349c" />
 <img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/fbc76364-ab31-4bbe-93e3-96d46e9b82af" />
+
+## how do i put my image to my readme?
+
+u must go to issues first
+
+<img width="720" height="1640" alt="Image" src="https://github.com/user-attachments/assets/04ed97a3-2975-4b7a-9e20-a0e638d01feb" />
+
+IM TO LAZY TO CROP OKAY.
+
+click "new issues" scroll down until u see "add files" if done copy paste it and put it into ur readme! 
